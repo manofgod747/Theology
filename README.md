@@ -1,7 +1,7 @@
 # Theology
 
 ## Duality
-Duality is the idea that everything that exists has a two fold nature. If something is possible, the inversion of it is a neccessity. If there is something to call white, there needs to be not white in order for white to exist. In order for life to exist, death is a must. If we are to call something good, the negation of it must be possible. Every concept must have a backround over which the concept gains visibility. The existence of the concept makes the background into a neccesity.
+Duality is the idea that everything that exists has a two fold nature. If something is possible, the inversion of it is a neccessity. If there is something to call white, there needs to be not white in order for white to exist. In order for life to exist, death is a must. If we are to call something good, the negation of it must be possible. Every concept must have a background over which the concept gains visibility. The existence of the concept makes the background into a neccesity.
 
 ## Trauma
 Trauma is the underlying mechanism that drives the narratives of this universe. Trauma is defined as unbearable violence and fear that results in the soul disconnecting from the body. The soul returns to the body after the danger has passed. The time the soul is absent creates a split in the mind. The split contains the memory of the trauma. The souls is unconscious of the memory until it is remebered. The unseen memory echoes thorough the body, creating paranoid delusions and pains the body.
