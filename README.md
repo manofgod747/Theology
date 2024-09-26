@@ -1,33 +1,37 @@
 # Theology
 
 ## Duality
-Duality is the idea that everything that exists has a two fold nature. If something is possible, the inversion of it is a neccessity. If there is something to call white, there needs to be not white in order for white to exist. In order for life to exist, death is a must. If we are to call something good, the negation of it must be possible.
+Duality is the idea that everything that exists has a two fold nature. If something is possible, the inversion of it is a neccessity. If there is something to call white, there needs to be not white in order for white to exist. In order for life to exist, death is a must. If we are to call something good, the negation of it must be possible. Every concept must have a backround over which the concept gains visibility. The existence of the concept makes the background into a neccesity.
 
 ## Trauma
-Trauma is the underlying mechanism that drives the narratives of this universe. Trauma is defined as unbearable violence and fear that results in the soul disconnecting from the body. The soul returns to the body after some time. The time the soul is absent creates a split in the mind. The split contains the memory of the trauma. The souls is unconscious of the memory until it is remebered. The memory echoes in the brain and spreads the suffering.
+Trauma is the underlying mechanism that drives the narratives of this universe. Trauma is defined as unbearable violence and fear that results in the soul disconnecting from the body. The soul returns to the body after the danger has passed. The time the soul is absent creates a split in the mind. The split contains the memory of the trauma. The souls is unconscious of the memory until it is remebered. The unseen memory echoes thorough the body, creating paranoid delusions and pains the body.
 
 The traumatic memory is the cause of pain and suffering. It is what propagates violence, jealousy, anger, ignorance.
 
+Trauma is the negation of wellness. Wellness and trauma in different combination sets the foundation of grand narratives. It relates to the concepts of Good and Evil.
+
 ## Sin
-Sin means self deception. Sins are not a list of prohibitions and cultural taboos. The sin is to decieve one self that something that isn't the case is the case. One can be in sin for different reasons. One category of reason is trauma. Trauma disconnects the soul from the body and the soul looses touch with the traumatic memory.
+Sin means self deception. Sins are not a list of prohibitions and cultural taboos. A sin is to decieve one self that something that isn't the case is the case. One can be in sin for different reasons. One category of reason is trauma. Trauma disconnects the soul from the body and the soul looses touch with the traumatic memory. The sin is the living of a life under false pretenses.
 
 Another reason for sin is manipulation. Psychological warfare. This type of sin can subdue the weak mind into believing in things that are not true. Self doubt and hatred are some of the things manipulation can lead to.
 
 ## The Sacred and the Profane
-Life is sacred. Living beings living in harmony with nature is sacred. Life acting out its will in unison with others is sacred. Profane is the opposite of sacred. Living in disharmony and agony is profane. The sacred and the profane can be visualized as two equal images with different meaning. The question of what image is sacred and what is profane cannot be answered from the image alone. It is the motives behind the images that determines the case.
+Life is sacred. Living beings living in harmony with nature is sacred. Life acting out its will in unison with nature is sacred. 
 
-Imagine an image of a mother stabbig her child to death. This image may seems profane. It may seem unholy. But wether that is the case, depends on the reasons as to why that is happening. In what affects is the mother acting? What is her reason? In what affect is the child? Does the child have a reason for being stabbed?
+Profane is the opposite of sacred. Living in disharmony and agony is profane. The sacred and the profane can be visualized as two equal images with different meaning. The question of what image is sacred and what is profane cannot be answered from the image alone. It is the motives behind the images that determines the case.
 
-To answer this question, imagine that this child is born in a cesarean birth. There is no birth trauma. For this reason, the child has her memory of past lifes intact. The child has the spiritual development of a spiritual master. When the child develops her ability to speak, her wisdom becomes clear to the audience.
+Imagine an image of a mother stabbig her child to death. This image may seems profane. It may seem unholy. But wether that is the case, depends on the reasons as to why it is taking place. In what affects is the mother acting? What is her reason? In what affect is the child? Does the child have a reason for being stabbed?
+
+To answer this question, imagine that this child is born in a cesarean birth. There is no birth trauma. For this reason, the child has her memory of past lifes intact. The child has the spiritual development of wise mage. When the child develops her ability to speak, her wisdom becomes clear to the audience.
 
 The child then decides at an early age to have her life taken from her by her mother. The reason for this is a public display of gratitude. A display of how something seemingly so horrible can be sacred. The virgin sacrifice.
 
 If the mother refused to help the child to do her will, she would be acting in disharmony and agony against the childs will. The mother can perform this act out of Love for her child. In respect for the will of the other, even though the image might seem profane to some. 
 
-In this sense, there is nothing sacred or profane about a pattern. It is the underlying motives that determine what is sacred, and what is profane. 
+In this sense, there is nothing sacred or profane about a pattern. Patterns are arbitrary. It is the underlying motives that determine what is sacred, and what is profane. 
 
 ## Good and Evil
-Good and evil are concept of this universe arising from the fact of trauma. Trauma corrupts. It spreads ignorance and fear. 
+Good and evil are concept of this universe arising from the fact of wellnes and trauma. 
 
 ## The Spiritual Cycle
 
