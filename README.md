@@ -1,7 +1,7 @@
 # Theology
 
 ## Trauma
-Trauma is underlying mechanism that drives the narratives of this universe. Trauma is defined as unbearable violence and fear that results in the soul disconnecting from the body. The soul returns to the body after some time. The time the soul is absent creates a split in the mind. The split contains the memory of the trauma. The souls is unconscious of the memory until it is remebered. The memory echoes in the brain and spreads the suffering.
+Trauma is the underlying mechanism that drives the narratives of this universe. Trauma is defined as unbearable violence and fear that results in the soul disconnecting from the body. The soul returns to the body after some time. The time the soul is absent creates a split in the mind. The split contains the memory of the trauma. The souls is unconscious of the memory until it is remebered. The memory echoes in the brain and spreads the suffering.
 
 The traumatic memory is the cause of pain and suffering. It is what propagates violence, jealousy, anger, ignorance.
 
