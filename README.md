@@ -83,7 +83,7 @@ This again begs the question. Is there sacred theft? Who defines what constitues
 The GOD of the old testament, as it is portrayed, is the image of a wicked corrupt degenerate. 
 
 ### The New Testament
-The New Testament has also not survived the test of time for the same reasons as the Old Testament. It is a sin to believe that text can withstand conrruption for such a long period of time. Given the nature of the fundamental truth, these texts are guarranteed to be corrupted. The author must take measures to protect against corruption. The institutional religious make unilateral decisions to change texts as they please, as though they are the lawmakers of the universe. The sin is to live by such a tenet and be a follower of such.
+The New Testament has also not survived the test of time for the same reasons as the Old Testament. It is a sin to believe that text can withstand corruption for such a long period of time. Given the nature of the fundamental truth, these texts are guarranteed to be corrupted. The author must take measures to protect against corruption. The institutional religious make unilateral decisions to change texts as they please, as though they are the lawmakers of the universe. The sin is to live by such a tenet and be a follower of such.
 
 The New Testament was written by the Greek philosopher Plato. It is the story of the spiritual pattern that plays itself out at the end of each spiritual cycle. There is no historical person named Jesus Christ. There is no evidence to support this claim. Jesus Christ is a translation from a word that once had meaning. It is not the name of a character. Christ denotes spiritual rank. Jesus, greek Youshua, means GOD saves. Jesus Christ translates to GOD saves the anointed one. 
 
