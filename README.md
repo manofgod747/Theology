@@ -60,7 +60,7 @@ The commandents bear no resemblance to Godly language. God needs not command pro
 
 Every concievable image can be both sacred and profane. Even killing can be sacred. The question is what the underlying motive is. Sensless killing of the innocent is profane. Killing the violent rapist is sacred. If humans do not bear the resposibility of killing when killing is necessary, we cannot claim to protect life. The prohibition of killing is added by those who want to arbitrate killing for their own purpose.
 
-Honoring parents has no purpose. Honorable people are honored. Dishonorable people are dishonered. There is no virtue in honoring parents for reasons of parenthood. All honor is earned. Parents should honor their childrens freedom.
+Honoring parents has no purpose. Honorable people are honored. Dishonorable people are dishonered. There is no virtue in honoring parents for reasons of parenthood. All honor is earned. Parents should honor their childrens freedom instead of imposing rules of parental honor.
 
 "Thou shall not commit adultery"
 
