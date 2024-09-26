@@ -1,12 +1,14 @@
 # Theology
 
 ## Trauma
-Trauma is underlying mechanism of narrative.
+Trauma is underlying mechanism that drives the narratives of this universe. Trauma is defined as unbearable violence and fear that results in the soul disconnecting from the body. The soul returns to the body after some time. The time the soul is absent creates a split in the mind. The split contains the memory of the trauma. The souls is unconscious of the memory until it is remebered. The memory echoes in the brain and spreads the suffering.
+
+The traumatic memory is the cause of pain and suffering. It is what propagates violence, jealousy, anger, ignorance.
 
 ## Sin
-Sin means self deception. Sins are not a list of prohibitions and cultural taboos. The sin is to decieve one self that something that isn't the case is the case. One can sin for different reasons. One category of reason is trauma. Trauma disconnects the soul from the body and the soul looses touch with the traumatic memory. The sin is self inflicted in the sense that the soul chose to move away from the experience. To recover from the sin, the soul needs to remember. 
+Sin means self deception. Sins are not a list of prohibitions and cultural taboos. The sin is to decieve one self that something that isn't the case is the case. One can be in sin for different reasons. One category of reason is trauma. Trauma disconnects the soul from the body and the soul looses touch with the traumatic memory.
 
-Another reason for sin is manipulation from others. Psychological warfare. This type of sin can subdue the weak mind into believing in things that are not true. Self doubt and hatred are some of the things manipulation can lead to.
+Another reason for sin is manipulation. Psychological warfare. This type of sin can subdue the weak mind into believing in things that are not true. Self doubt and hatred are some of the things manipulation can lead to.
 
 ## The Sacred and the Profane
 Life is sacred. Living beings living in harmony with nature is sacred. Life acting out its will in unison with others is sacred. Profane is the opposite of sacred. Living in disharmony and agony is profane. The sacred and the profane can be visualized as two equal images with different meaning. The question of what image is sacred and what is profane cannot be answered from the image alone. It is the motives behind the images that determines the case.
