@@ -66,13 +66,15 @@ Honoring parents has no purpose. Honorable people are honored. Dishonorable peop
 
 This is interpreted to mean that having sexual relations oustide of a marriage is a sin. 
 
-It is the one who gives him or herself the right to interfere in the sexual relations of others who is sinning. Man and Woman do not own each other. Sex is a natural part of life. It is sacred when two people share the intimate act in love and consentual understanding. It is profane to engange in sexual relations with unwilling parties.
+It is the one who gives him or herself the right to interfere in the sexual relations of others who is sinning. Man and Woman do not own each other. Sex is a natural part of life. It is sacred when people Love. It is profane to engange in sexual relations with unwilling parties.
 
-Placing importance on words such as husband and wife is the sin. To abide by social rules, norms, and illusions around those concepts is true adultery in a broader sense. Adultery is to disgrace the natural order.
+Placing importance on words such as husband and wife is the sin. To abide by social rules, norms, and illusions around those concepts is the true adultery in a broader sense. Adultery is to disgrace the natural order.
 
-Taking the Lords name in vain does not mean to utter the sound GOD in ways that are disagreeable to some. That sound is arbitrary. The Lords name is the language of nature. One is taking the Lords name in vain by beliving in the many rules of the wicked. 
+"Do not take the Lords name in vain"
 
-Commandments are not necessary. God does not need to command. God created the Heavens and the Earth to be freely and honestly explored. God is the all in which life has its course. Godliness is discovered. The relationship to GOD is personal. It is sacred. It is not to be trusted onto insitutions. Religious institutions are a sign of spiritual decay. 
+Taking the Lords name in vain does not mean to utter the sound GOD or Elohim in ways that are disagreeable to some. The sound is arbitrary. The Lords name is the language of nature. One is taking the Lords name in vain by beliving in the many rules of the wicked. 
+
+Commandments are not necessary. GOD does not need to command. GOD created the Heavens and the Earth to be freely and honestly explored. GOD is the all in which life has its course. Godliness is discovered. The relationship to GOD is personal. It is sacred. It is not to be trusted onto insitutions. Religious institutions are a sign of spiritual decay. 
 
 The only thing that needs to be said is to Love GOD, and not idolize. Loving GOD means to love all of creation and all of the experiece. There are no limits, only endless possibilities. 
 
@@ -80,15 +82,15 @@ The only thing that needs to be said is to Love GOD, and not idolize. Loving GOD
 
 This again begs the question. Is there sacred theft? Who defines what constitues theft and what constitues anothers property and not? Stealing is sacred if the theft takes from the greedy and gives to the poor. Stealing is profane when the greedy live in illusion of unearned property.
 
-The GOD of the old testament, as it is portrayed, is the image of a wicked corrupt degenerate. 
+The GOD of the old testament, as it is portrayed, is the image of corruption.
 
 ### The New Testament
 The New Testament has also not survived the test of time for the same reasons as the Old Testament. It is a sin to believe that text can withstand corruption for such a long period of time. Given the nature of the fundamental truth, these texts are guarranteed to be corrupted. The author must take measures to protect against corruption. The institutional religious make unilateral decisions to change texts as they please, as if they were the lawmakers of the universe. The sin is to live by such a tenet and be a follower of such.
 
-The New Testament was written by the Greek philosopher Plato approx 400 B.C.E. It is the story of the spiritual pattern that plays itself out at the end of each spiritual cycle. There is no historical person named Jesus Christ. There is no evidence to support this claim. Jesus Christ is translated from a word that once had meaning. It is not the name of a character. Christ denotes spiritual rank. Jesus, greek Youshua, means GOD saves. Jesus Christ translates to GOD saves the anointed one. 
+The New Testament was written by the Greek philosopher Plato approx 400 B.C.E. It is a simple spiritual teaching and the story of the spiritual pattern that plays itself out at the end of each spiritual cycle. There is no historical person named Jesus Christ. There is no evidence to support this claim. Jesus Christ is translated from a word that once had meaning. It is not the name of a character. Christ denotes spiritual rank. Jesus, greek Youshua, means GOD saves. Jesus Christ translates to GOD saves the anointed one. 
 
-There are no apostles. The text is written in repitition with the purpose of fooling the wicked into apostacy. The text has a key that can decode its true meaning. It is a method that shakes out the corruption and leaves what is sacred.
+There are no apostles. The text is written in repitition with the purpose of fooling the wicked into apostasy. The text has a key that can decode its true meaning. It is a method that shakes out the corruption and leaves what is sacred.
 
-The new Testament is written in a language that is hard to fully grasp for the uninitiated. It's meaning is deeper and more profound than one may think. This is especially true for Revelations. The meaning of Revelations is revealed to those who are ready for the message. For the uninitiated, it looks like a poem. 
+The new Testament is written in a language that is hard to fully grasp for the uninitiated. It's meaning is deeper and more profound than one might think. This is especially true for Revelations. The meaning of Revelations is revealed to those who are ready for the message. For the uninitiated, it looks like a symbolic poem. 
 
 
