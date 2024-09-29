@@ -66,7 +66,7 @@ Honoring parents has no purpose. Honorable people are honored. Dishonorable peop
 
 This is interpreted to mean that having sexual relations oustide of a marriage is a sin. 
 
-It is the one who gives himself the right to interfere in the sexual relations of others who is sinning. Man and Woman do not own each other. Sex is a natural part of life. It is sacred when two people share the intimate act in love and consentual understanding. It is profane to engange in sexual relations with unwilling parties.
+It is the one who gives him or herself the right to interfere in the sexual relations of others who is sinning. Man and Woman do not own each other. Sex is a natural part of life. It is sacred when two people share the intimate act in love and consentual understanding. It is profane to engange in sexual relations with unwilling parties.
 
 Placing importance on words such as husband and wife is the sin. To abide by social rules, norms, and illusions around those concepts is true adultery in a broader sense. Adultery is to disgrace the natural order.
 
