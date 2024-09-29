@@ -22,7 +22,7 @@ Profane is the opposite of sacred. Living in disharmony and agony is profane. Th
 
 Imagine an image of a mother stabbig her child to death. This image may seems profane. It may seem unholy. But wether that is the case, depends on the reasons as to why it is taking place. In what affects is the mother acting? What is her reason? In what affect is the child? Does the child have a reason for being stabbed?
 
-To answer this question, imagine that this child is born in a cesarean birth. There is no birth trauma. For this reason, the child has her memory of past lifes intact. The child has the spiritual development of wise mage. When the child develops her ability to speak, her wisdom becomes clear to the audience.
+To answer this question, imagine that this child is born in a cesarean birth. There is no birth trauma. For this reason, the child has her memory of past lifes intact. The child has the spiritual development of a wise mage. When the child develops her ability to speak, her wisdom becomes clear to the audience.
 
 The child then decides at an early age to have her life taken from her by her mother. The reason for this is a public display of gratitude. A display of how something seemingly so horrible can be sacred. The virgin sacrifice.
 
