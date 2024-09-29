@@ -6,7 +6,7 @@ Duality is the idea that everything that exists has a two fold nature. If someth
 ## Trauma
 Trauma is the underlying mechanism that drives the narratives of this universe. Trauma is defined as unbearable violence and fear that results in the soul disconnecting from the body. The soul returns to the body after the danger has passed. The time the soul is absent creates a split in the mind. The split contains the memory of the trauma. The souls is unconscious of the memory until it is remebered. The unseen memory echoes thorough the body, creating paranoid delusions and pains the body.
 
-The traumatic memory is the cause of pain and suffering. It is what propagates violence, jealousy, anger, ignorance.
+The traumatic memory is the cause of pain and suffering. It is what propagates violence, jealousy, anger, hatred and ignorance.
 
 Trauma is the negation of wellness. Wellness and trauma in different combination sets the foundation of grand narratives. It relates to the concepts of Good and Evil.
 
