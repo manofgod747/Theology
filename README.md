@@ -31,11 +31,18 @@ If the mother refused to help the child to do her will, she would be acting in d
 In this sense, there is nothing sacred or profane about a pattern. Patterns are arbitrary. It is the underlying motives that determine what is sacred, and what is profane. 
 
 ## Good and Evil
-Good and evil are concept of this universe arising from the fact of wellnes and trauma. 
+Good and evil are concept of this universe arising from the fact of wellnes and trauma. The well person has spiritualy correct reality judgement. Life is percieved as endless. There is no vanity, jealousy, hatred and anger. The well person is in harmony with the self and nature. 
+
+The traumatized person suffers from the conditions that the well one has overcome. The obsessive desires is what draws one into evil deeds. The evil is not aware. There is always justifications for ones deeds.
+
+## Righeous and Unrigoues wrath
+...
 
 ## The Spiritual Cycle
+...
 
 ### Incest, Pedofilia, and Rape
+...
 
 ## The Bible
 ### The Old Testament
