@@ -35,8 +35,10 @@ Good and evil are concept of this universe arising from the fact of wellnes and 
 
 The traumatized person suffers from the conditions that the well one has overcome. The obsessive desires is what draws one into evil deeds. The evil is not aware. There is always justifications for ones deeds.
 
-## Righeous and Unrigoues wrath
-...
+## Righeous and Unrighous wrath
+The question of wrath, or anger, is prudent to mention in spiritual literature. Should the spiritual always act in kind? Never loose temper? This way of looking at spiritual life is a forfeit of everything that is sacred. Given that the profane exists, the sacred must be there to stop it at its tracks. Wrath can of course be justified at full. Some things deserve to have the wrath of GOD descend upon them. 
+
+Unrigheous wrath is wrath for petty concerns. Percieved infidelity, harrasment, and so on. 
 
 ## The Spiritual Cycle
 ...
