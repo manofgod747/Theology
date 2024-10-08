@@ -33,17 +33,13 @@ In this sense, there is nothing sacred or profane about a pattern. Patterns are 
 ## Holy
 What is Holy? What is the meaning of the word that ignites feelings of awe? What is the Holy of Holies?
 
-Holy is that which of utmost and ultimate importance. If it didn't exists and function properly, nothing would be at all.
+Holy is that which is of utmost and ultimate importance. If it didn't exists and function properly, nothing would be at all.
 
 1. Tabula Rasa
 
 2. Sex
 
-First, the abscence of preconvieved notions. A clean mind. A clean mind can enter any functional framework.
-
-Second, the act of reproduction. Without which, nothing would be at all. 
-
-If the minds is filled with foreign notions, it will have problems adapting. Sex is fundamental to life. Sexual interventionalism is unholy.
+First, the abscence of preconvieved notions. A clean mind. A clean mind can enter any functional framework. Second, the act of reproduction. Without which, nothing would be at all. If the minds is filled with foreign notions, it will have problems adapting. Sex is fundamental to life. Sexual interventionalism is unholy.
 
 ## Good and Evil
 Good and evil are concept of this universe arising from the fact of wellnes and trauma. The well person has spiritualy correct reality judgement. Life is percieved as endless. There is no vanity, jealousy, hatred and anger. The well person is in harmony with the self and nature. 
